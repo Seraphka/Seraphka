@@ -1,4 +1,4 @@
-**<p align="center">I love Han Jisung ♡</p>**
+**<p align="center">【﻿Ｉ　ｌｏｖｅ　Ｈａｎ　Ｊｉｓｕｎｇ】 ♡</p>**
 <p align="center"> <img src="https://github.com/user-attachments/assets/2ee2d21a-d7ef-43fd-b35b-179fbb4da894" </p>
 
 
